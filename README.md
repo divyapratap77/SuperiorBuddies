@@ -1,2 +1,0 @@
-# SuperiorBuddies
-nft website
